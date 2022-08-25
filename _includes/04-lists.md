@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+Things I like:
+* Leeds United 
+* Eating
+* Swimmming and Gym
+* Watching TV or Films while eating laods of crips
